@@ -1,1 +1,1 @@
-![Снимок экрана 2025-11-27 в 18.25.24.png](../%D0%A1%D0%BD%D0%B8%D0%BC%D0%BE%D0%BA%20%D1%8D%D0%BA%D1%80%D0%B0%D0%BD%D0%B0%202025-11-27%20%D0%B2%2018.25.24.png)
+<img width="619" height="430" alt="Снимок экрана 2025-11-27 в 18 25 24" src="https://github.com/user-attachments/assets/98d09566-b01b-4699-bc6e-e65b180c9070" />
